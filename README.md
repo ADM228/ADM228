@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ADM228
-- 👀 I’m interested in programming and old-ass consoles.
-- 📫 How to reach me - msh.alexgoog@gmail.com, twitter - @alexmush0, Discord - alexmush#7063
+- 👀 I’m interested in programming, chiptunes and old-ass consoles.
+- 📫 I primarily communicate on Discord (@alexmush)
 - 🇺🇦 I'm Russian and I hate Putin, Slava Ukraini!
 
 <!---
